@@ -1,4 +1,4 @@
-### bem vindo 💚🤍
+### Bem vindo 💚🤍
 
 meunome é @GAMER7245
 
